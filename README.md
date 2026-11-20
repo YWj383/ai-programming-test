@@ -1,1 +1,8 @@
 # ai-programming-test
+아무말이나 해봄
+?
+?
+?
+?
+?
+?
